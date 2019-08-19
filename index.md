@@ -1,4 +1,4 @@
-# The Best Foods for a Low Sodium and Low Oxalate Diet
+# The Best Foods for a Low Oxalate and Low Sodium Diet
 
 ## Mission Statement
 This webpage is here to provide a guiding hand to those who want to know more about a low oxalate and low sodium diet and how to help prevent calcium oxalate kidney stones. These opinions are based on factual studies, and I might note that the professional studies often contradict each other. For example I found many examples where a Harvard study and another study at Stanford had enough contraditory statistics to make you worry. I by no means am a professional on the matter, but I do know from experience. Because it still affects my life, I am constantly trying to find the best information and most accurate information.
